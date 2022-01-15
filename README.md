@@ -1,1 +1,0 @@
-# plantsgcc.github.io
